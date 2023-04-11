@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @laska1911
-- 👀 I’m interested in baskeball, rds, create beats
+- 👀 I’m interested in baskeball
 - 🌱 I’m currently learning in college RSSU
-- 📫 How to reach me @saintoctober in tg
+- 📫 How to reach me @saintapril in tg
 
 <!---
 laska1911/laska1911 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
