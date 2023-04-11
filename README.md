@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @laska1911
-- 👀 I’m interested in baskeball
+- 👀 I’m interested in basketball
 - 🌱 I’m currently learning in college RSSU
 - 📫 How to reach me @saintapril in tg
 
